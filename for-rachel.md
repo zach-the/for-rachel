@@ -61,7 +61,7 @@ So I think the biggest point is just to be honest with yourself about what you f
 ##### Trust God
 Whatever happens is what is supposed to happen. I trust that fully. I trust you to receive your own revelation and to make the right decision for you. I know that God has a fantastic plan in store for the both of us, so I'm not too worried about it. I also know that I have approached this relationship in exactly the way that God wanted me to.
 
-##### About You
-Rachel, I just think you're really awesome - you're funny, intelligent, faithful, hard-working, ambitious, kind, really fun to be around, friendly, happy, reasonable, and beautiful. I care about you so much, and I just love spending time with you. Like, a lot. I really hope this works out, because I think I would be really happy if it did.
+##### From Me to You
+Rachel, I just think you're really awesome - you're funny, intelligent, faithful, hard-working, ambitious, kind, really fun to be around, friendly, happy, reasonable, and beautiful. I care about you so much, and I just love spending time with you. Like, a lot. I really hope this works out, because I would be really happy if it did.
 
 ~ zach
