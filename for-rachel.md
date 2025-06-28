@@ -1,6 +1,4 @@
 ### Possible Trajectories
-*PS: I would really like if you told me whatever plan you have to ponder this stuff before you enact it, especially if that plan involves significantly throttling communication or contact with me.*
-
 Anyways here are kinda the three options:
 > 1. We're finished
 > 2. You keep seeing other guys, and we also keep seeing each other (I think you should still at least consider this option, even if only for another week or two, and maybe just less agressively than you did last week.)
@@ -65,3 +63,6 @@ Whatever happens is what is supposed to happen. I trust that fully. I trust you 
 Rachel, I just think you're really awesome - you're funny, intelligent, faithful, hard-working, ambitious, kind, really fun to be around, friendly, happy, reasonable, and beautiful. I care about you so much, and I just love spending time with you. Like, a lot. I really hope this works out, because I would be really happy if it did.
 
 ~ zach
+
+*PS: I would really like if you told me whatever plan you have to ponder this stuff before you enact it, especially if that plan involves, like, cutting me off or something.*
+
