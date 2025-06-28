@@ -7,7 +7,6 @@ Anyways here are kinda the three options:
 > 3. We start dating, with no preconcieved notion of how anything will play out
 
 ### Some Facts About Our Situation, and Their Respective Implications
-
 ##### I'm Leaving Soon
 It's kinda painful to say this, but if I were your big brother, the thing I would honestly be telling you is to consider the fact that I only have two months left in Provo. I would tell you that you should be careful that you're not getting into a relationship with someone who just wants **a relationship**, not a relationship **with you**, which might be a risk if you're dating someone who is leaving Provo so soon.
 
@@ -36,7 +35,7 @@ Ultimately, I hope that the basis of your decision for **whoever** you decide to
 Also, remember this quote that my friend said to me: *"in a relationship, everything is great until it's not."* That means that choosing to date me is **not** choosing to marry me. That's the point. At any point in the relationship, you could learn or experience something that totally changes the way you feel, and at that point, you're **obligated** to end the relationship. And that is in no way unfair. That's exactly how it's supposed to be. Once you're married, of course, it's a different story. But yeah.
 
 ##### My Take on the Essence of the Dilemma
-To date me in any sort of committed relationship probably means to look straight into the eyes of a future that is pretty different than the one that you had previously imagined for yourself and to say, "that might happen." Which is pretty terrifying. If you're anything like me, you probably looked forward to the idea of going to BYU and graduating from BYU with a lot of excitement and anticipation, and to consider not doing that is a big deal. So I think it kind of comes down to whether or not you're willing to risk that preconcieved notion of how your future would play out, or not. ***And it's okay if you're not***
+The main problem seems to be this: To date me in any sort of committed relationship probably means to look straight into the eyes of a future that is pretty different than the one that you had previously imagined for yourself and to say, "that might happen." Which is pretty terrifying. If you're anything like me, you probably looked forward to the idea of going to BYU and graduating from BYU with a lot of excitement and anticipation, and to entertain the possibility of not doing that is a big deal. So I think it kind of comes down to whether or not you're willing to risk that preconcieved notion of how your future would play out, or not. ***And it's okay if you're not***
 
 ##### You're Totally Capable of Finding More Guys
 Another thing that comes along with this idea of the future is that I do honestly believe that you'd be able to find someone else. I don't know where you stand on this, but I am not a huge believer in the idea of soul mates. (I know, how unromantic). Anyways, I can see that you're just a wonderful woman, and that for someone as awesome as you are, it wouldn't be particularly challenging for you to find someone else who can "check all your boxes." Like literally, you could make a list and bring that list to each first date you go on, and eventually you would find a guy who likes you and who checks every box. And that would probably happen for you a couple of times while you're at BYU, if you just decided to keep going on dates. So while I think there are some things that I can bring to the table that would be very very challenging to find in other guys, there are definitely other guys out there who could make you the happiest girl in the world.
@@ -45,7 +44,6 @@ Another thing that comes along with this idea of the future is that I do honestl
 Something my Dad said to me, that I think a lot about is this: "Every one has flaws. It's just a matter of finding someone whose flaws you can live with." I would encourage you to think honestly about what flaws and shortcomings I have, and to ask yourself if there are things that you're okay with. I feel like I've brought all of the major red flags that I might have with you by now but if you'd like, we can talk about my flaws and weaknesses in a more open and up-front way later.
 
 ### My Final Thoughts
-
 ##### The Other Guy
 I know you briefly mentioned that you went on a second date with another guy, and that you had a lot of fun - I think that's awesome. I don't want to say this, but once again, if I were you big brother, I would tell you to go on a few more dates with him, and see how it goes. You gotta look out for \#1 here, and make the most selfish decision. Here's why: I would never want to date or marry someone who I think might have wanted someone else more than me. So just be sure that that's absolutely not the case before you do anything.
 
