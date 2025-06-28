@@ -3,7 +3,7 @@
 
 Anyways here are kinda the three options:
 > 1. We're finished
-> 2. You keep seeing other guys, and we also keep seeing each other (I think you should still at least consider this option, if not only for another week or two, and maybe just less agressively than you did last week.)
+> 2. You keep seeing other guys, and we also keep seeing each other (I think you should still at least consider this option, even if only for another week or two, and maybe just less agressively than you did last week.)
 > 3. We start dating, with no preconcieved notion of how anything will play out
 
 ### Some Facts About Our Situation, and Their Respective Implications
