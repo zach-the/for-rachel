@@ -8,13 +8,16 @@ Anyways here are kinda the three options:
 
 ### Potential Places for Poor Vision
 
-##### I'm leaving Soon
+##### I'm Leaving Soon
 It's kinda painful to say this, but if I were your big brother, the thing I would honestly be telling you is to consider the fact that I only have two months left in Provo, which for a lot of people is considered the best place to get married. You should be careful that you're not getting into a relationship with someone who just wants *a relationship*, not a relationship **with you**.
+
+##### I Haven't Been on a Ton of Dates
+This is another one that is a little scary to admit and to tell you to honestly consider, but I have not been on that many dates. You were the first girl I took on a date after I broke up with Sydne for good, and between my mission and dating Sydne there wasn't a ton of dating around that I had done (maybe 5 or 6 dates and a month-long relationship). So big brother to little sister again, you should think about that.
 
 ##### 2 Months
 We really only have two months to have an in-person relationship. That's not a ton of time to really get to know someone, and to try to make any sort of big decision in that amount of time would probably be unwise. There are some downsides there, but I don't know if that's something worth considering at this moment, as much as it might be, say a month from now. 
 
-Another thing that I'll add here is that I'll be making $95000 a year on salary alone, and round trip flights from Denver to SLC are only $100. So I think if it came to it I'd very likely be seeing you 2-3 days out of the week (Friday, Saturday, Sunday) on a weekly basis.
+Another thing that I'll add here is that I'll be making $95k a year not including bonuses or stock options, and round trip flights from Denver to SLC are only $100. So I think if it came to it I'd very likely be seeing you 2-3 days out of the week (Friday, Saturday, Sunday) on a weekly basis. An anecdotal fact to back this up is when I was in Idaho last summer for my internship there were only two weeks out of the twelve that I didn't do the 5.5 hour drive from Boise to Provo to see Sydne. So I guess that is a promise of sorts that you could count on. 
 
 ##### Thoughts on Long-Distance
 Long distance relationships are hard. I don't know if it would make much sense to expect to be long distance for a period of time greater than 6-12 months.
@@ -32,9 +35,9 @@ Something my Dad said to me, that I think a lot about is this: "Every one has fl
 ##### Loyalty and Commitment
 I can understand what your roomate is saying about you dating other guys and basically being in a relationship with me and whatnot, but at the same time, there was a pretty clear agreement that we had both negotiated and agreed to, and I feel like most of that was because we both understood the stakes of what a relationship with me would mean for you, from the beginning.
 
-The absolute last thing that I want you to do is to get yourself into a situation where you feel trapped because you can't do what these two sentences talk about: 
-- maybe somebody else, so maybe not him
-- probably nobody else, so probably him
+The absolute last thing that I want you to do is to get yourself into a situation where you feel trapped because of the ideas captured in these sentences:
+- maybe somebody else, so not him I guess
+- probably nobody else, and therefore him
 
 Ultimately, I hope that the basis of your decision for **whoever** you decide to get into relationships with are as follows...
 - him, so definitely nobody else
@@ -43,6 +46,9 @@ Ultimately, I hope that the basis of your decision for **whoever** you decide to
 - not him, so definitely somebody else.
 
 Also, remember this quote that my friend said to me: *"in a relationship, everything is great until it's not."* That means that choosing to date me is **not** choosing to marry me. That's the point. At any point in the relationship, you could learn or experience something that totally changes the way you feel, and at that point, you're **obligated** to end the relationship. And that is in no way unfair. That's exactly how it's supposed to be. Once you're married, of course, it's a different story. But yeah.
+
+##### The Other Guy
+I know you briefly mentioned that you went on a second date with another guy, and that you had a lot of fun. I don't want to say this, but once again, if I were you big brother, I would tell you to go on a few more dates with him, and see how it goes. You gotta look out for \# 1 here.
 
 ### Final Notes from Zach
 - consider the other dude
