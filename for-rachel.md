@@ -7,7 +7,7 @@ Anyways here are kinda the three options:
 3. We start dating, with no preconcieved notion of how anything will play out
 
 ### Potential Places for Poor Vision
-##### Zach is leaving Soon
+##### I'm leaving Soon
 It's kinda painful to say this, but if I were your big brother, the thing I would honestly be telling you is to consider the fact that I only have two months left in Provo, which for a lot of people is considered the best place to get married. You should be careful that you're not getting into a relationship with someone who just wants *a relationship*, not a relationship **with you**.
 
 ##### 2 Months
@@ -26,8 +26,17 @@ Another thing that comes along with this idea of the future is that I do honestl
 ##### A Note on Flaws
 Something my Dad said to me, that I think a lot about is this: "Every one has flaws. It's just a matter of finding someone whose flaws you can live with." I would encourage you to think honestly about what flaws and shortcomings I have, and to ask yourself if are things that you're okay with. If you'd like, we can talk about my problems in a more open and up-front way later, but I feel like I've brought most of the major red flags that I might have, and some of my smaller weaknesses up with you by now.
 ##### Loyalty and Commitment
-I can understand what your roomate is saying about you dating other guys and basically being in a relationship with me and whatnot, but at the same time, there was a pretty clear agreement that we had both negotiated and agreed to, and I feel like most of that was because we both understood the [essence of the dilemma]{#My Take on the Essence of the Dilemma}.
+I can understand what your roomate is saying about you dating other guys and basically being in a relationship with me and whatnot, but at the same time, there was a pretty clear agreement that we had both negotiated and agreed to, and I feel like most of that was because we both understood the stakes of what a relationship with me would mean for you, from the beginning.
 
+The absolute last thing that I want you to do is to get yourself into a situation where you feel trapped because you can't do what these two sentences talk about: 
+- maybe somebody else, so maybe not him
+- probably nobody else, so probably him
+
+It's my hope that the basis of your decision for **whoever** you decide to get into relationships with are as follows...
+- him, so definitely nobody else
+
+...and that your basis for ending those relationships is:
+- not him, so definitely somebody else.
 
 ### Final Notes from Zach
 - consider the other dude
