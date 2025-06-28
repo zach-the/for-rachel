@@ -66,3 +66,4 @@ Rachel, I just think you're really awesome - you're funny, intelligent, faithful
 
 *PS: I would really like if you told me whatever plan you have to ponder this stuff before you enact it, especially if that plan involves, like, cutting me off or something.*
 
+*PPS: I really like you :)*
