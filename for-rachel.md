@@ -69,5 +69,4 @@ Whatever happens is what is supposed to happen. I trust that fully. I trust you 
 ##### About You
 Rachel, I just think you're really awesome - you're funny, intelligent, faithful, hard-working, ambitious, kind, really fun to be around, friendly, happy, reasonable, and beautiful. I care about you so much, and I just love spending time with you. Like, a lot. I really hope this works out, because I think I would be really happy if it did.
 
-\n
 ~ zach
