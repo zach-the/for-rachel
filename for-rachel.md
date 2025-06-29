@@ -43,7 +43,7 @@ Something my Dad said to me, that I think a lot about is this: "Every one has fl
 
 ### My Final Thoughts
 ##### The Other Guy
-I know you briefly mentioned that you went on a second date with another guy, and that you had a lot of fun - I think that's awesome. It's kinda painful to say this, and I don't really want to, but once again, if I were you big brother, I would tell you to go on a few more dates with him, and see how it goes. You gotta look out for \#1 here, and make the most selfish decision. Here's why: I would never want to date or marry someone who I think might have wanted someone else more than me. So just be sure that that's absolutely not the case before you do anything.
+I know you briefly mentioned that you went on a second date with another guy, and that you had a lot of fun - I think that's awesome. It's kinda painful to say this, but once again, if I were you big brother, I would tell you to go on a few more dates with him, and see how it goes. You gotta look out for \#1 here, and make the most selfish decision. Here's why: I would never want to date or marry someone who I think might have wanted someone else more than me. So just be sure that that's absolutely not the case before you do anything.
 
 ##### Validation About Your Situation
 It's a tough situation to be in. I absolutely do not envy you. I really just wanna be patient and like, supportive I guess. I want to teach you everything that I can that I know from the mistakes I've made and the painful experiences I've had when it comes to tough relationship and life decisions. 
