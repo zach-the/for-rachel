@@ -54,6 +54,8 @@ expression of trust, and when you do that, God really takes care of you. It is s
 
 In the case I was telling you about where I was struggling about what to do with Sydne, it took me honestly admitting to myself that I felt that there was just something fundamentally wrong about the way that I felt about the relationship, and that after all the work I had put in to change the way that I felt, to change the way that our relationship functioned, and after truly significant and amicable progress on all fronts, I still felt just unsettled. It was at that point that I decided that the way I felt must have been from God, and so I decided to let go. From that point, because I was certain that that feeling of doubt and hesitation was from God, and was not anxiety and doubt, I had zero doubt in my mind that what I was doing was correct. 
 
+Also I think honestly admitting to yourself whether or not you want something is very important. So if you just don't want something, it's okay for that to be true, and letting yourself accept that makes your life so much easier.
+
 So I think the biggest point is just to be honest with yourself about what you feel, and about the sources of those feelings. Just admit to yourself what you honestly feel, and allow yourself to see what that actually means. After that, you can trust that God will direct you about where to go.
 
 ##### Trust God
