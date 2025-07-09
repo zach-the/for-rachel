@@ -1,0 +1,16 @@
+- road trip to:
+    - california
+    - oregon
+    - ?
+- hike thompson peak, idaho
+- goblin valley
+- cook some good food together
+- eat expensive sushi
+- go to that one ramen place that my parents took me for dinner
+- watch:
+    - dune 2
+    - mud
+    - legally blonde
+    - past lives
+- 
+
